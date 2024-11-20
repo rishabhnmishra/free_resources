@@ -1,2 +1,4 @@
-# free_resources
-Free resources to learn n grow!!
+# Free Resources to learn n grow!! 🚀
+
+## follow for more: 
+https://www.linkedin.com/in/rishabhnmishra/ 
